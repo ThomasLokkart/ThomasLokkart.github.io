@@ -1,4 +1,4 @@
-#It's easy to regret 
+# It is easy to regret 
 
 I remember the time I had to choose a study programme. Twenty-five year old Thomas had to choose a study programme based on, in hindsight, almost zero information. Although, I was very enthousiastic about going to college, I was still very comfortable in my house with my parents, brothers and friends close by. I had no intention of going off too far. 
 
