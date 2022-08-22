@@ -1,6 +1,6 @@
 # It is easy to regret 
 
-I remember the time I had to choose a study programme. Twenty-five year old Thomas had to choose a study programme based on, in hindsight, almost zero information. Although, I was very enthousiastic about going to college, I was still very comfortable in my house with my parents, brothers and friends close by. I had no intention of going off too far. 
+I remember the time I had to choose a study programme. Egitheen year old Thomas had to choose a study programme based on, in hindsight, almost zero information. Although, I was very enthousiastic about going to college, I was still very comfortable in my house with my parents, brothers and friends close by. I had no intention of going off too far. 
 
 That left three universities: Technical University Eindhoven, Radboud University Nijmegen and Maastricht university. I always knew I wanted to do a _bèta study programme_ and therefore Maastricht was quickly rejected. And, I am not going to lie, my first thought was, I had the best grade for chemistry in high school, and was therefore aiming to do something with chemistry at either Eindhoven or Nijmegen. I felt chemical engineering was not for me, therefore I chose chemistry at the Radboud University. Also, because I heard student life was good there. 
 
