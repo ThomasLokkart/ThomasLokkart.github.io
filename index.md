@@ -1,1 +1,1 @@
-Welcome on my blog. This blog will contain things that I think about, or learn. It is an ideal way to find back things that I thought about in the past or learned in the past. Feel free to reach out ever.  
+Welcome on my blog. This blog will contain things that I think about, or learn. It is an ideal way to find back things that I thought about in the past or learned in the past. Feel free to ever reach out.  
